@@ -4,11 +4,13 @@
 --------------------------------------------------------------------------
 #### 海外地址：https://www.5wulang.com
 --------------------------------
-#### 最新地址一：https://www.5lang.top
-#### 最新地址二：https://www.nrttav.me
-#### 最新地址三：https://www.55langb.com
-#### 最新地址四：https://www.9cccb.com
-#### 最新地址五：http://www.9aib.com
+#### 最新地址1：https://www.92my.xyz
+#### 最新地址2：https://www.93my.xyz
+#### 最新地址3：https://www.5lang.top
+#### 最新地址4：https://www.nrttav.me
+#### 最新地址5：https://www.55langb.com
+#### 最新地址6：https://www.9cccb.com
+#### 最新地址7：http://www.9aib.com
 
 温馨提示：如果访问不了的用户请一定要在网址前面加上“https”如：https://www.5wulang.com
 
