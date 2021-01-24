@@ -9,7 +9,8 @@
 #### 最新地址3：https://www.5lang.top
 #### 最新地址4：https://www.nrttav.me
 #### 最新地址5：https://www.55langb.com
-#### 最新地址6：https://www.458ys.com
+#### 最新地址6：https://www.55langc.com
+#### 最新地址7：https://www.458ys.com
 
 
 温馨提示：如果访问不了的用户请一定要在网址前面加上“https”如：https://www.5wulang.com
